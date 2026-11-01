@@ -1,0 +1,1 @@
+# newsfolder-privacy
